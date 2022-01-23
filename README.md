@@ -9,3 +9,6 @@ Gurk | Barebones but very addicting RPG (still on playstore) | Note: Gurk 2 and 
 
 
 Mirage Realms | Very fun RPG with a artstyle that may remind you of final fantasy on the gba. | By Liam Stewart
+
+
+Animelee | Dead but addicting fighting game. | Unofficial Discord Server | By Sungrand
